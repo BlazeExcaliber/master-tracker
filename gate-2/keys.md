@@ -1,3 +1,4 @@
 # Keys
 
-No keys have been found yet for Gate 2
+2.A Pile Of Bones
+3.Open Your Third Eye
