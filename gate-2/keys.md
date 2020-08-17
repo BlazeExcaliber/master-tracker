@@ -1,3 +1,3 @@
-# Keys
+# Key 1
+.A Symbol Of Death
 
-No keys have been found yet for Gate 2
